@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 Pls reach me at erkai.wong@gmail.com
 - 😄 Pronouns: Send ur cats' tax pls
-- ⚡ Fun fact: sk
+- ⚡ Fun fact: ski
 
 <!---
 Erkai317/Erkai317 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
